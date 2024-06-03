@@ -2,7 +2,7 @@
 
 ### :woman_technologist: We are managing our GitHub business profile as "WpFresher" :
 
-### 👉 GO TO: 🔗  [https://github.com/WpFresher](https://github.com/wpfresher) 🔗
+### 👉 GO TO: 🔗  [https://github.com/WpFresher](https://github.com/WpFresher) 🔗
 
 ---
 ### :fire: WpFresher Trophy :
